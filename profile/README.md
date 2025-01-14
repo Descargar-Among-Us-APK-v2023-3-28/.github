@@ -118,3 +118,12 @@ Among Us está disponible de forma gratuita para dispositivos Android. En otras 
 ## Toque final
 
 Among Us es el sistema operativo Android+iOS+Windows+Linux+etc. más popular, casi todos los sistemas operativos. Te ofrece modos de juego gratuitos basados ​​en la trama del juego de primer nivel. Aquí debes trabajar en equipo y emplear una estrategia de clase mundial para ganar diferentes niveles. Nuestra modificación Among Us MOD APK te ofrece todos los MOD o hacks anteriores de forma gratuita. Además, funciona en el mismo servidor y tiene la misma interfaz que el oficial. ¿Entonces, qué estás esperando? ¡Descarga este juego relámpago ahora mismo y adopta la magia en lugar de la estrategia!
+
+Among Us APK Mod
+Among Us APK download PC
+Among Us APK download latest version
+Among Us APK for Android tv
+Among Us APK mod menu
+Among Us APK an1
+Among Us APK download old version
+Among Us APK OBB
